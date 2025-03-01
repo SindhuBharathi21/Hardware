@@ -1,0 +1,6 @@
+![DAY3-T1](https://github.com/user-attachments/assets/010e83ba-88c8-4f4d-bc41-15680303e189)
+![DAY3 t-2](https://github.com/user-attachments/assets/f2328744-9334-4c26-872d-434bf520e1da)
+![DAY3T-3](https://github.com/user-attachments/assets/06d36cdc-00ce-466e-b815-5cec179b88f4)
+![DAY3-T4](https://github.com/user-attachments/assets/854f3dc0-f5e1-463e-93b8-bcb6a5cd9af1)
+![DAY3T5](https://github.com/user-attachments/assets/31829f4f-9283-439d-ae34-3667d5bbc4f5)
+![DAY3T-LAST](https://github.com/user-attachments/assets/8a65e2b8-a835-4e28-b015-1e1f8226e59d)
